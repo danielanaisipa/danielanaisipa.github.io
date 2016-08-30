@@ -1,1 +1,0 @@
-# danielanaisipa.github.io
